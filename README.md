@@ -10,8 +10,7 @@
 
 **Contact Information:**
 - **Phone:** 9901170033  
-- **Email:** matharva@357@gmail.com
-
+- **Email:** matharva@357gmail.com
 --------------------------------------------------------------------------------
 
 ## Description
